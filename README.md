@@ -1,5 +1,5 @@
 Privacy is one of the topmost problems in the world. Messages and Communications
-between people should be protected. Privacy is everyone’s basic right. As most the
+between people should be protected. Privacy is everyoneâ€™s basic right. As most the
 messages are shared and communications are done electronically via emails, social media
 messengers, and other communication platforms on World Wide Web. These sources are
 not well secured or securities have loopholes and messages can be intercepted by other
